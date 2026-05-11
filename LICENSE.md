@@ -1,4 +1,4 @@
-#  
+#  Experience easter tap simulator like never before with best Scripts for easter tap simulator, the #1 Script. Includes unlimited stamina and speed for
 
 
 
